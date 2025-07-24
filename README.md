@@ -7,7 +7,7 @@
 # 
 
 # Về cơ bản, chứng minh tài chính là việc cung cấp các giấy tờ hợp pháp thể hiện năng lực tài chính của cá nhân hoặc gia đình. Tài liệu này thường bao gồm: sổ tiết kiệm ngân hàng, giấy xác nhận số dư, sao kê tài khoản, chứng nhận thu nhập, hợp đồng lao động, giấy tờ sở hữu tài sản như nhà đất, xe hơi, cổ phiếu… Mỗi quốc gia, mỗi mục đích xin visa sẽ có yêu cầu khác nhau về mức tài chính và loại giấy tờ cụ thể.
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-xin-visa.html
 # 
 
 # Ví dụ, khi xin visa du học Canada, bạn cần chứng minh có đủ tiền học phí và sinh hoạt phí trong ít nhất một năm. Số tiền này thường nằm trong khoảng 25.000 - 30.000 CAD tùy chương trình học. Với visa du lịch, bạn cần chứng minh có đủ tài chính cho toàn bộ chuyến đi, bao gồm vé máy bay, ăn ở và chi phí cá nhân.
